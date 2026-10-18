@@ -13,7 +13,7 @@ I returned to Britain, in the aftermath of my mother's passing on the eve of my 
 
 Over the next seven years, I have come to meet a lot of Anne Elliots, quite a few Lady Russells, some brush ins with William Elliots, the acquaintance of Walter Elliots. But I am yet to meet a Frederick Wentworth. 
 
-I first read Austen in school. Pride and prejudice. Though times and technology have changed, my experience of Britain is very much in line of how I imagined Austen's world to be. But I never expected it to come into conflict with mine. I'm the first graduate in my extended family, eventually going on to get a PhD from India's best engineering institution. My twin sister, despite having failed a year in school, eventually went on to do a Postgraduate degree in Economics. My cousin, who was forced to leave school due to financial problems, got a job at 19, worked hard, and now has an MBA. Tamilnadu is in no way perfect, but it instilled a strong belief that everything is possible. 
+I first read Austen in school. Pride and Prejudice. Though times and technology have changed, my experience of Britain is very much in line of how I imagined Austen's world to be. But I never expected it to come into conflict with mine. I'm the first graduate in my extended family, eventually going on to get a PhD from India's best engineering institution. My twin sister, despite having failed a year in school, eventually went on to do a Postgraduate degree in Economics. My cousin, who was forced to leave school due to financial problems, got a diploma, then a job, worked hard, and now, as his daughter is about to enter school, has an MBA. Tamilnadu is in no way perfect, but it instilled a strong belief that everything is possible. 
 
 That's why I was surprised to learn about a culture where even the best and brightest minds in the country had to choose between applying to Oxford and Cambridge, and not have an opportunity to pursue both. A culture that has come to clip its own wings because it's afraid of what lies beyond the horizon. Fresh out of school, the first decision a child makes is a constraint dressed up as choice. And therefore, it is quite natural that I have had the pleasure of meeting people of every hue and shade but for the ones of Frederick Wentworth.
 
@@ -27,5 +27,5 @@ I made an unwavering bet on Britain a second time. Academic bullying denied me t
 
 But fulfilment is not just accolades and achievements. Wentworth himself realised this and went to Bath. And, in ten days, I am leaving Britain for India, in search of my Wentworth.
 
-*Au revoir, Britain.* Should I ever find my Captain Wentworth here, I shall return again. 
+*Au revoir, Britain.* Should I ever find my Wentworth here, I shall return again. 
 
