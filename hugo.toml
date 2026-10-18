@@ -1,0 +1,5 @@
+baseURL = 'https://Aero264.github.io/in-search-of-my-wentworth/'
+languageCode = 'en-us'
+title = 'In search of my Wentworth'
+theme = 'congo'
+    
