@@ -1,4 +1,4 @@
-baseURL = 'https://Aero264.github.io/in-search-of-my-wentworth/'
+baseURL = 'https://Aero264.github.io/blog/'
 languageCode = 'en-us'
 title = 'In search of my Wentworth'
 theme = 'congo'
