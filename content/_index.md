@@ -23,7 +23,7 @@ Just as there are no villains in Anne's story, Britain too is persuaded by the u
 
 But the idea of Wentworth seems to have become alien to Britain. What I see instead is a cultivated state of helplessness. Even Jarvis's portrayal of Wentworth in the latest adaptation of Persuasion could not escape it.
 
-I made an unwavering bet on Britain a second time. Academic bullying denied me the opportunity to pursue my own grant. I fought this as a self-represented Claimant in the Employment Tribunal, which culminated in the Tribunal making a sharp oral remark in a public preliminary hearing that "A fraud is a fraud and they do not need any more evidence to see that". This prompted a settlement before the final hearing. Within months of moving to a new job, I secured a grant as Principal Investigator and led my first clinical study. 
+I made an unwavering bet on Britain a second time. I alleged that academic bullying had denied me the opportunity to pursue my own grant. I fought this as a self-represented Claimant in the Employment Tribunal, which culminated in the Tribunal making an oral remark in a public preliminary hearing to the effect that I had evidence to pin the Respondent down. While this was neither a formal finding nor an admission of liability, the case subsequently settled before the final hearing. Within months of moving to a new job, I secured a grant as Principal Investigator and led my first clinical study. 
 
 But fulfilment is not just accolades and achievements. Wentworth himself realised this and went to Bath. And swimming against the current is not necessarily going to reverse it. So, in ten days, I am leaving Britain for India, in search of my Wentworth.
 
